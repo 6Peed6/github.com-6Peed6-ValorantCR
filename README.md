@@ -1,1 +1,1 @@
-# github.com-6Peed6-ValorantCR
+# 6Peed6-ValorantCR
